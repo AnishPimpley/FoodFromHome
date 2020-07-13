@@ -4,8 +4,8 @@
     Each recipe is hand written as individual pdfs. Do with them what you like.                   
     I am a serviceable cook. Nothing less, nothing more. Don't blame me if your house burns down ¯\_(ツ)_/¯
 
-* **[Bacon Burnt Rice Pulao]()**            
+* **[Bacon Burnt Rice Pulao](recipe_pdfs/Bacon burnt rice pulao.pdf)**            
 The goodness of bacon and the ease of making pulao. Can be made in 1 pot and 20 minutes.
 
-* **Sausage and Bell pepper Dirty Rice**                    
+* **[Sausage and Bell pepper Dirty Rice](recipe_pdfs/sausage, onion and pepper.pdf)**                    
 20 minute dish relies on browned hot sausage and sauted onions, garlic and bell peppers to make a for a deep and satisfying rice dish. 
