@@ -6,6 +6,11 @@
 
 # Dishes I've come up with
 
+* **[Garlic noodles with minced chicken and mushrooms](https://github.com/AnishPimpley/Fat_is_flavor/blob/master/recipe_pdfs/sausage%2C%20onion%20and%20pepper.pdf)**                    
+A dish that highlights the beauty of garlic oil. Crispy minced chicken and mushroom at great texture and create for an amazing umami bomb.
+
+<img src="https://instagram.fnyc1-1.fna.fbcdn.net/v/t51.2885-15/sh0.08/e35/s750x750/109295291_2576179892632109_7570099112809096215_n.jpg?_nc_ht=instagram.fnyc1-1.fna.fbcdn.net&_nc_cat=105&_nc_ohc=8qG-mPS-dPcAX93EBQZ&oh=e6affeb6cda3a5cd470624831aa7f8b4&oe=5F3DAE82" alt="Instagram photo of the recipe" width="390"/>
+
 * **[Bacon Burnt Rice Pulao](https://github.com/AnishPimpley/Fat_is_flavor/blob/master/recipe_pdfs/Bacon%20burnt%20rice%20pulao.pdf)**            
 The goodness of bacon and the ease of making pulao. Can be made in 1 pot and 20 minutes.
 
