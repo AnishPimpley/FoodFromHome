@@ -23,6 +23,11 @@ The goodness of bacon and the ease of making pulao. Can be made in 1 pot and 20 
 
 # Dishes I adopted from elsewhere
 
+* **[Arepas](https://www.seriouseats.com/2012/04/latin-american-cuisine-colombian-arepas.html)**                    
+Practically Columbia's national food. Takes time, but very versatile. Make them cheesy or make them like a sloppy joe sandwich, will be amazing either way. Just make sure to get the water-flour ratio right.
+
+<img src="https://instagram.fnyc1-1.fna.fbcdn.net/v/t51.2885-15/sh0.08/e35/s640x640/117038579_582951729065874_5695225694871154938_n.jpg?_nc_ht=instagram.fnyc1-1.fna.fbcdn.net&_nc_cat=106&_nc_ohc=fM1dDgvJh4AAX_Vdivb&oh=86738c84ed33fa44b10504c83c16e9d9&oe=5F53DE79" width="390"/>
+
 * **[Authentic Carbonara](https://www.youtube.com/watch?v=90LalTBSIhE)**                    
 Amazing carbonara is simple, but not easy. It requires a little bit of care when it comes to ingredients and technique. But the extra effort pays off big time.
 
