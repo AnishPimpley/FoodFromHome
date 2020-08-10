@@ -12,12 +12,22 @@
 ------------ | ------------- | ------------- | -------------
  [Link](https://www.youtube.com/watch?v=ac0aDCcUO94) | [Video](https://www.youtube.com/watch?v=pKQazSLmD8c) | [Video](https://www.youtube.com/watch?v=vEqjGsGWXwk)| [link](https://www.seriouseats.com/recipes/2013/09/plantain-crusted-mahi-mahi-with-pineapple-salsa-from-the-catch.html)
 
-* I didn't exactly, come up with it. It is a mish-mash of 3 different recipes from 3 different places, that work really well in 1 dish. The primary driver for this was to make something that looks and tastes like something you'd get at a fine dining restaurant.           
-* The Romesco and Salsa are vegan and incredibly versatile.                    
-* Romesco is a Catalan sun dried tomato - amlond sauce. My roomate said that the romesco is one of the best vegan things he's ever had and he mopped up any left overs. I added seasame seeds and some olive oil as garnish, but they work really well as flavor enhancers too. Don't pulverize it too thin. Let it have some texture at the end of it.           
-* The original meat with the romesco, was striped bass, by any fish with flavorful skin would work. I could only find salmon in my local supermarket. Other substitutes: Red snapper.                    
-* Cooking salmon is a easy, but involes a few steps you absolutely cannot mess up. I would really recommend you watch the attached video and do not stray from the recommendations. I promise it will come out in pristine condition, as long as you don't mess with it.                              
-* The pineapple salsa cuts through any accompaniment that is heavy on the palate. Thus, it pairs really well with the romesco. It's inspired from the attached recipe, but through a few modifications, I've made it quite simple. Just pineapple, cherry tomatoes and tomatillos. The salad dressing is olive oil, crushed garlic, cilantro, salt, lime juice and lime zest. Emulsify the dressing in the olive oil first and then pour it over fruits.                     
+I didn't exactly, come up with it. It is a mish-mash of 3 different recipes from 3 different places, that work really well in 1 dish. The primary driver for this was to make something that looks and tastes like something you'd get at a fine dining restaurant.  
+
+<details><summary>Recipe details</summary>
+<p>
+     
+The Romesco and Salsa are vegan and incredibly versatile.                    
+
+Romesco is a Catalan sun dried tomato - amlond sauce. My roomate said that the romesco is one of the best vegan things he's ever had and he mopped up any left overs. I added seasame seeds and some olive oil as garnish, but they work really well as flavor enhancers too. Don't pulverize it too thin. Let it have some texture at the end of it.           
+The original meat with the romesco, was striped bass, by any fish with flavorful skin would work. I could only find salmon in my local supermarket. Other substitutes: Red snapper.                    
+
+Cooking salmon is a easy, but involes a few steps you absolutely cannot mess up. I would really recommend you watch the attached video and do not stray from the recommendations. I promise it will come out in pristine condition, as long as you don't mess with it.                              
+
+The pineapple salsa cuts through any accompaniment that is heavy on the palate. Thus, it pairs really well with the romesco. It's inspired from the attached recipe, but through a few modifications, I've made it quite simple. Just pineapple, cherry tomatoes and tomatillos. The salad dressing is olive oil, crushed garlic, cilantro, salt, lime juice and lime zest. Emulsify the dressing in the olive oil first and then pour it over fruits.                     
+</p>
+</details>
+
 
 
 <img src="https://instagram.fnyc1-1.fna.fbcdn.net/v/t51.2885-15/e35/s1080x1080/117172487_716786878898882_9145949481573330924_n.jpg?_nc_ht=instagram.fnyc1-1.fna.fbcdn.net&_nc_cat=102&_nc_ohc=iY5Tgiz4My8AX_rjCf6&oh=8df211918552839c991ba061a474aa3a&oe=5F599B77" alt="Instagram photo of the recipe" width="390"/>
