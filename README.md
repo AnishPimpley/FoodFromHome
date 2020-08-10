@@ -60,7 +60,7 @@ Amazing carbonara is simple, but not easy. It requires a little bit of care when
 
 * [Kenji](https://www.youtube.com/user/kenjialt) - Science + cooking + entertaining man.  
 * [Serious Eats](https://www.youtube.com/user/SeriousEats) - Science + cooking
-* [Helen Rennie](https://www.youtube.com/user/helenrennie) - Cooking with heart + science + entertraining woman
+* [Helen Rennie](https://www.youtube.com/user/helenrennie) - Cooking with heart + science + entertaining woman
 * [Chinese Cooking Demystified](https://www.youtube.com/channel/UC54SLBnD5k5U3Q6N__UjbAw) - Hardcore authentic chinese cooking with deep discussions and long videos
 * [Wang Gang](https://www.youtube.com/channel/UCg0m_Ah8P_MQbnn77-vYnYw) - Even more hardcore chinese cooking (Not in English)
 * [Food wishes](https://www.youtube.com/channel/UCRIZtPl9nb9RiXc9btSTQNw) - Chef John is patron saint of Youtube home cooking. Can never go wrong.
