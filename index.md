@@ -17,14 +17,11 @@ I didn't exactly, come up with it. It is a mish-mash of 3 different recipes from
 <details><summary>Recipe details</summary>
 <p>
      
-The Romesco and Salsa are vegan and incredibly versatile.                    
-
-Romesco is a Catalan sun dried tomato - amlond sauce. My roomate said that the romesco is one of the best vegan things he's ever had and he mopped up any left overs. I added seasame seeds and some olive oil as garnish, but they work really well as flavor enhancers too. Don't pulverize it too thin. Let it have some texture at the end of it.           
+* The Romesco and Salsa are vegan and incredibly versatile.                    
+* Romesco is a Catalan sun dried tomato - amlond sauce. My roomate said that the romesco is one of the best vegan things he's ever had and he mopped up any left overs. I added seasame seeds and some olive oil as garnish, but they work really well as flavor enhancers too. Don't pulverize it too thin. Let it have some texture at the end of it.           
 The original meat with the romesco, was striped bass, by any fish with flavorful skin would work. I could only find salmon in my local supermarket. Other substitutes: Red snapper.                    
-
-Cooking salmon is a easy, but involes a few steps you absolutely cannot mess up. I would really recommend you watch the attached video and do not stray from the recommendations. I promise it will come out in pristine condition, as long as you don't mess with it.                              
-
-The pineapple salsa cuts through any accompaniment that is heavy on the palate. Thus, it pairs really well with the romesco. It's inspired from the attached recipe, but through a few modifications, I've made it quite simple. Just pineapple, cherry tomatoes, tomatillos and red onion slices. The salad dressing is olive oil, crushed garlic, cilantro, salt, lime juice and lime zest. Emulsify the dressing in the olive oil first and then pour it over fruits.                     
+* Cooking salmon is a easy, but involes a few steps you absolutely cannot mess up. I would really recommend you watch the attached video and do not stray from the recommendations. I promise it will come out in pristine condition, as long as you don't mess with it.                              
+* The pineapple salsa cuts through any accompaniment that is heavy on the palate. Thus, it pairs really well with the romesco. It's inspired from the attached recipe, but through a few modifications, I've made it quite simple. Just pineapple, cherry tomatoes, tomatillos and red onion slices. The salad dressing is olive oil, crushed garlic, cilantro, salt, lime juice and lime zest. Emulsify the dressing in the olive oil first and then pour it over fruits.                     
 </p>
 </details>
 
@@ -55,13 +52,10 @@ Lisbon's favorite food is also the epitome of egg custard tart perfection. This 
 <details><summary>Recipe details</summary>
 <p>
      
-DO NOT USE PUFF PASTRY. It will ruin the dish. This is a rather tricky dough to work with, takes up a whole day and requires a you to be meticulous. However, it is truly rewarding. Trust me, or don't, I'm not your mother.      
-
-Remember that every person's oven is different, so times in the oven might vary. If it doesn't get the characteristic brown spots by the time the pastry is cooked, use the broiler get them colors. However, monitor it closely, it can go from brown to burnt very quickly.                  
-
-Lemon rinds and cinnamon sticks are't traditional, but are highly recommended additions.
-
-Lastly, make twice the batches, thank me later.  
+* DO NOT USE PUFF PASTRY. It will ruin the dish. This is a rather tricky dough to work with, takes up a whole day and requires a you to be meticulous. However, it is truly rewarding. Trust me, or don't, I'm not your mother.      
+* Remember that every person's oven is different, so times in the oven might vary. If it doesn't get the characteristic brown spots by the time the pastry is cooked, use the broiler get them colors. However, monitor it closely, it can go from brown to burnt very quickly.                  
+* Lemon rinds and cinnamon sticks are't traditional, but are highly recommended additions.
+* Lastly, make twice the batches, thank me later.  
 
 </p>
 </details>
