@@ -24,7 +24,7 @@ The original meat with the romesco, was striped bass, by any fish with flavorful
 
 Cooking salmon is a easy, but involes a few steps you absolutely cannot mess up. I would really recommend you watch the attached video and do not stray from the recommendations. I promise it will come out in pristine condition, as long as you don't mess with it.                              
 
-The pineapple salsa cuts through any accompaniment that is heavy on the palate. Thus, it pairs really well with the romesco. It's inspired from the attached recipe, but through a few modifications, I've made it quite simple. Just pineapple, cherry tomatoes and tomatillos. The salad dressing is olive oil, crushed garlic, cilantro, salt, lime juice and lime zest. Emulsify the dressing in the olive oil first and then pour it over fruits.                     
+The pineapple salsa cuts through any accompaniment that is heavy on the palate. Thus, it pairs really well with the romesco. It's inspired from the attached recipe, but through a few modifications, I've made it quite simple. Just pineapple, cherry tomatoes, tomatillos and red onion slices. The salad dressing is olive oil, crushed garlic, cilantro, salt, lime juice and lime zest. Emulsify the dressing in the olive oil first and then pour it over fruits.                     
 </p>
 </details>
 
