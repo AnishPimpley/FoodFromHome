@@ -23,6 +23,13 @@ The goodness of bacon and the ease of making pulao. Can be made in 1 pot and 20 
 
 # Dishes I adopted from elsewhere
 
+* **[Pastéis de Nata](https://www.youtube.com/watch?v=099qXDYutyg)**                    
+Lisbon's favorite food is also the epitome of egg custard tart perfection. This is near the top of my favorite foods in the whole world. Lemon rinds and cinnamon sticks are't traditional, but I high recommended additions. Great idea for a weekend project. Lastly, make twice the batches, thank me later.                                                 
+DO NOT USE PUFF PASTRY. It will ruin the dish. This is a rather tricky dough to work with, takes up a whole day and requires a you to be meticulous. However, it is truly rewarding. Trust me, or don't, I'm not your mother.                                   
+Remember that every person's oven is different, so times in the oven might vary. If it doesn't get the characteristic brown spots by the time the pastry is cooked, use the broiler get them colors. However, monitor it closely, it can go from brown to burnt very quickly.
+
+<img src="https://instagram.fnyc1-1.fna.fbcdn.net/v/t51.2885-15/sh0.08/e35/s640x640/117111026_999684360489256_1912077105813129884_n.jpg?_nc_ht=instagram.fnyc1-1.fna.fbcdn.net&_nc_cat=104&_nc_ohc=nEI_s-mVJbYAX_SaSCA&oh=74af72e59c95e625fb36e10fdec71c44&oe=5F5BE6F6" width="390"/>
+
 * **[Arepas](https://www.seriouseats.com/2012/04/latin-american-cuisine-colombian-arepas.html)**                    
 Practically Columbia's national food. Takes time, but very versatile. Make them cheesy or make them like a sloppy joe sandwich, will be amazing either way. Just make sure to get the water-flour ratio right.
 
