@@ -9,7 +9,7 @@
 ## **Crispy Salmon with Romesco sauce and Pineapple salsa**        
 
  Salmon | Striped Bass | Romesco | Pineapple Salsa 
------------- | ------------- | ------------- | -------------
+ ------------ | ------------- | ------------- | -------------
  [Link](https://www.seriouseats.com/recipes/2017/01/crispy-pan-seared-salmon-fillets-recipe.html) | [Video](https://www.youtube.com/watch?v=pKQazSLmD8c) | [Video](https://www.youtube.com/watch?v=vEqjGsGWXwk)| [link](https://www.seriouseats.com/recipes/2013/09/plantain-crusted-mahi-mahi-with-pineapple-salsa-from-the-catch.html)
 
 I didn't exactly, come up with it. It is a mish-mash of 3 different recipes from 3 different places, that work really well in 1 dish. The primary driver for this was to make something that looks and tastes like something you'd get at a fine dining restaurant.  
