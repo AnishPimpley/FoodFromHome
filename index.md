@@ -4,7 +4,8 @@
 
     Mostly came up with these, 1 lunch at a time.
     Each recipe is hand written as individual pdfs. Do with them what you like.                   
-    I am a serviceable cook. Nothing less, nothing more. Don't blame me if your house burns down ¯\_(ツ)_/¯
+    I am a serviceable cook. Nothing less, nothing more. Don't blame me if your house burns down ¯\_(ツ)_/¯    
+    here's my recipe bitches, eat it or die - A certain wise glutton
 
 ## See my <a href="https://www.instagram.com/anishpimpley/">Insta</a> for more photos
 
