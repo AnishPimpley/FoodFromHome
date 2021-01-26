@@ -44,7 +44,7 @@ The original meat with the romesco, was striped bass, by any fish with flavorful
 
 
 
-<img src="https://instagram.fnyc1-1.fna.fbcdn.net/v/t51.2885-15/e35/s1080x1080/117172487_716786878898882_9145949481573330924_n.jpg?_nc_ht=instagram.fnyc1-1.fna.fbcdn.net&_nc_cat=102&_nc_ohc=iY5Tgiz4My8AX_rjCf6&oh=8df211918552839c991ba061a474aa3a&oe=5F599B77" alt="Instagram photo of the recipe" width="390"/>
+<img src="https://www.instagram.com/p/CDr8CufAsWJ/media/?size=l" alt="Instagram photo of the recipe" width="390"/>
 
 ## **[Garlic noodles with minced chicken and mushrooms](https://github.com/AnishPimpley/Fat_is_flavor/blob/master/recipe_pdfs/garlic_noodles.pdf)**                    
 A dish that highlights the beauty of garlic oil. Crispy minced chicken and mushroom at great texture and create for an amazing umami bomb.
